@@ -23,3 +23,4 @@ https://discord.new/nX7fUh7Q87zv
 https://discord.new/SpgcThm5QmGS
 https://discord.new/BERB7sAdCVYN
 https://discord.new/yH6bPrpZey7s
+https://discord.new/7m7XYAY6uz4P
